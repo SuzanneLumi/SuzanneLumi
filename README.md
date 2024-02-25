@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SuzanneLumi
+- 👋 Hi, I’m @Suzanne
 - 👀 I’m interested in Agile, trance music, dancing, fitness
 - 🌱 I’m currently learning Coaching
 - 💞️ I’m looking to collaborate  with my colleagues
